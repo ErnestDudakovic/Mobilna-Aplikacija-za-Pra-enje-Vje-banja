@@ -1,1 +1,1 @@
-# Mobilna-Aplikacija-za-Pra-enje-Vje-banja
+# Mobilna-Aplikacija-za-Pracenje-Vjezbanja
